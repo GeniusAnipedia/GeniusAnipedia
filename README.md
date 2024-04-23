@@ -5,7 +5,7 @@
 - 📫 How to reach me reach me at 9380707544
 - 😄 Pronouns: always Him. 
 - ⚡ Fun fact: Just dance with me u ll know the fun . 
-✝️✝️ Ehqt ever you do do for the Lord. Amen 
+- ✝️ What  ever you do do for the Lord. Amen 
 <!---
 GeniusAnipedia/GeniusAnipedia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
